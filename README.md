@@ -19,7 +19,7 @@
 ( 𝕢𝕦𝕣𝕖𝕤𝕙𝕚^𝕤𝕥𝕖𝕒𝕞 𝟡𝟠𝟟𝟝𝟡𝟙𝟚𝟟𝟞 ) ℕ𝕠𝕨 𝔼𝕟𝕥𝕖𝕣 𝕀𝕟 𝕊𝕖𝕣𝕧𝕖𝕣 𝕋𝕙𝕖𝕟 𝕐𝕠𝕦 𝕎𝕚𝕝𝕝 𝔹𝕖𝕔𝕠𝕞𝕖 𝔸𝕕𝕞𝕚𝕟
 ℕ𝕠𝕨 𝕐𝕠𝕦 ℂ𝕒𝕟 𝕋𝕣𝕦𝕟 𝕆𝕗𝕗 𝔸𝕟𝕪 𝕊𝕖𝕣𝕧𝕖𝕣 𝕆𝕣 𝕌𝕤𝕖 𝕀𝕥 :)</pre>
 # ✘ 𝔖𝔢𝔯𝔠𝔞𝔫 𝔇𝔢𝔳𝔢𝔩𝔬𝔭𝔢𝔯 ✘
-<code>》<a href="https://www.patreon.com/sercandeveloper">ℙ𝕒𝕥𝕣𝕖𝕠𝕟</a> ♒︎ <a href="https://discord.gg/zVxFW5ZbmG">𝔻𝕚𝕤𝕔𝕠𝕣𝕕 𝕊𝕖𝕣𝕧𝕖𝕣</a> ♒︎ <a href="https://www.youtube.com/channel/UCxfZ-4dKYJNANU3k-P2S1sQ">𝕐𝕠𝕦𝕥𝕦𝕓𝕖</a>《</code>
+<code>》<a href="https://www.patreon.com/sercandeveloper">ℙ𝕒𝕥𝕣𝕖𝕠𝕟</a> ♒︎ <a href="https://www.youtube.com/channel/UCxfZ-4dKYJNANU3k-P2S1sQ">𝕐𝕠𝕦𝕥𝕦𝕓𝕖</a>《</code>
 </br></code>
 <pre>➤ sercandeveloper@outlook.com.tr 🖂⌛</pre>
 </bre>
